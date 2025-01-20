@@ -32,7 +32,7 @@ I am passionate about leveraging technology to solve real-world problems and mak
 ## 🌐 Find Me Online
 
 - [GitHub](https://github.com/Pallavimbhat)
-- [LinkedIn](www.linkedin.com/in/pallavi-bhat-6a8a15300)
+- [LinkedIn](https://www.linkedin.com/in/pallavi-bhat-6a8a15300?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
 
 
